@@ -1,5 +1,1 @@
-![ᯓ★ (1)](https://github.com/user-attachments/assets/b83ead2d-3e61-425f-b5a6-1e80b2ff5bc1)
-
-im too lazy to edit
-
-
+![Untitled13_20241212193256](https://github.com/user-attachments/assets/ff466d21-3126-42f1-b790-79f522b2cfd6)
