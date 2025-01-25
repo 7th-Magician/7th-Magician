@@ -1,4 +1,3 @@
-♪ ♪♪ ♪ ♪♪ ♪ ♪♪ ♪ ♪♪ ♪ ♪ ♪
-![Untitled87_20250108182243](https://github.com/user-attachments/assets/f55a5357-fce8-450e-8e3a-d259032b1766)
-
- ••  Ꮃ𝟚Ꮖ ꪑꪮ᥉t ꪮƒ thꫀ tเꪑꫀ ! ••
+× •
+![Untitled116_20250125185615](https://github.com/user-attachments/assets/d6fe94f2-49df-4c6b-9606-2a1b058a4123)
+• × 
